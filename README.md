@@ -67,6 +67,6 @@ INACTIVITY FOR MORE THAN 3 DAYS/A WEEK = I'M WORKING, i'll get back on soon i pr
 Offtab or out
 
 ![1000027186](https://github.com/user-attachments/assets/c888d00f-ec28-44c8-921a-c471c69c8a79)
-I may be too loud or hyperactive that's it
+I may be too loud that's it
 
 bye
