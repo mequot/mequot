@@ -11,7 +11,11 @@ THANKS TO EVERYONE THAT I SEE MAKING MEMORY LANE/FF SKINS <333 I'M SO HAPPY YOU 
 
 Andrew (Romantic Partner)
 
-Mel (Platonic Wife)
+Al/Creative
+
+Jackie
+
+Jasper
 
 Elliot (@camycatyy / @late-night-snack)
 
