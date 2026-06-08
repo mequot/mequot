@@ -2,6 +2,8 @@
 
 THANKS TO EVERYONE THAT I SEE MAKING MEMORY LANE/FF SKINS <333 I'M SO HAPPY YOU ALL ENJOY MY GAME
 
+If you're my friend and you want some robux any amount just hmu I'll get you some
+
 ★ I'm always available I'm on online classes dm wheneverrr
 
 ───────────────────────────────────────────────────────────────────────
