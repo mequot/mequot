@@ -1,5 +1,7 @@
 # ★ I will ONLY follow selected ppl I think very highly of or close friends so yeah I don't fb. I do check the profiles of every single one of my followrs here tho, I send gimmicks and sign atas sometimes 👍
 
+I'VE WORKED/CONTRIBUTED FOR: THE ROBLOXIA: UNTIL DAWN, FUZZY HORIZONS, MEMORY LANE, OTHER ROBLOX GAMES!
+
 THANKS TO EVERYONE THAT I SEE MAKING MEMORY LANE/FF SKINS <333 I'M SO HAPPY YOU ALL ENJOY MY GAME
 
 If you're my friend and you want some robux any amount just hmu I'll get you some
@@ -37,7 +39,7 @@ INACTIVITY FOR MORE THAN 3 DAYS/A WEEK = I'M WORKING, i'll get back on soon i pr
 ★ I AM OPEN FOR HIRE!!! I DO:
 * Art
 * 2D and 3D animation (Mostly storyboards and frame by frame (>30fps) when it comes to 2D though)
-* Scripting (Datastores, Networking, ModuleScript Architecture, etc)
+* Scripting
 * Blender Modelling!!! I do UV maps too and I can do simple rigging
 * Sculpting, just an extra, I don't sell thosee
 
