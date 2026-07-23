@@ -21,8 +21,6 @@ I also give free robux on the safe server when I'm having a good day
 
 ♥ Alex
 
-♥ Jackie
-
 ♥ Jasper
 
 ♥ Elliot (@camycatyy / @late-night-snack)
